@@ -110,4 +110,3 @@ Agora, que tal começar a montar o seu Mapa de Vida e Carreira? Pense nos seus s
 
 ---
 
-Esse material pode ser distribuído aos alunos em formato de texto impresso ou ser apresentado digitalmente. Caso queira adicionar algo mais, me avise!
